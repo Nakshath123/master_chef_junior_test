@@ -1,0 +1,4 @@
+Directions
+Peel and rinse the potatoes. Cut each potato lengthwise into 4 or 5 pieces, then cut each piece into sticks. The thinner these are, the crispier they will be. Place the fries in a large bowl. Cover with cold water, then allow them to soak 2 or 3 hours (or you can stick them in the fridge and let them soak overnight). 
+When you're ready to make the fries, drain the water and lay the potatoes on 2 baking sheets lined with paper towels. Blot with paper towels to dry. 
+Heat a few inches of vegetable oil to 300 degrees F in a heavy pot. In 3 or 4 batches, fry the potatoes about 4 to 5 minutes per batch, or until soft. They should not be brown at all at this point-you just want to start the cooking process. Remove each batch and drain them on new, dry paper towels. 
